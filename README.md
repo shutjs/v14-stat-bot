@@ -7,7 +7,7 @@ herkese selam istek üzerine yapmış olduğum stat botunu sizlerle paylaşıyor
 ![image](https://cdn.discordapp.com/attachments/1091833080869834884/1092556444487925780/image.png)
 # Barlı yapınca fotoğrafı değiştiricem örnek olarak bıraktım 
 ![image](https://cdn.discordapp.com/attachments/1091833080869834884/1092556541133070426/image.png)
-![image](https://cdn.discordapp.com/attachments/1091841270336454766/1092925939366764584/image.png)
+![image](https://cdn.discordapp.com/attachments/1091841270336454766/1092926423838232596/image.png)
 ![image](https://cdn.discordapp.com/attachments/1091833080869834884/1092556766170066965/image.png)
 ![image](https://cdn.discordapp.com/attachments/1091841270336454766/1092925604640346264/image.png)
 ![image](https://cdn.discordapp.com/attachments/1091841270336454766/1092925641474719754/image.png)
