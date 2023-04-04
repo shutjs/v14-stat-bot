@@ -8,5 +8,6 @@ herkese selam istek üzerine yapmış olduğum stat botunu sizlerle paylaşıyor
 # Barlı yapınca fotoğrafı değiştiricem örnek olarak bıraktım
 ![image](https://cdn.discordapp.com/attachments/1091833080869834884/1092556541133070426/image.png)
 ![image](https://cdn.discordapp.com/attachments/1091833080869834884/1092556766170066965/image.png)
+![image](https://cdn.discordapp.com/attachments/1091841270336454766/1092925604640346264/image.png)
+![image](https://cdn.discordapp.com/attachments/1091841270336454766/1092925641474719754/image.png)
 
-# Birkaç Fotoğrafını Paylaşmadım Yapınca Atıcam
